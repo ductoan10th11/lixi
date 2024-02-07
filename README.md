@@ -1,1 +1,2 @@
-Hi! I'm Toan and I am programing!
+Hi! I'm Toan
+I am a programing and a Photographer!
